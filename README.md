@@ -1,0 +1,2 @@
+# Toshkanboyeva
+axborot
